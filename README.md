@@ -14,6 +14,6 @@ Here are some ideas to get you started:
 - 😄 Pronouns: ...Her/She 
 - ⚡ Fun fact: ... I love singing, Dancing and being Free...
 
-https://github.com/devicons/devicon.git
+
 
 
