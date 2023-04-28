@@ -12,5 +12,8 @@ Here are some ideas to get you started:
 - 💬 Ask me about ...Anything about Life 
 - 📫 How to reach me: ...virtually 
 - 😄 Pronouns: ...Her/She 
-- ⚡ Fun fact: ...
+- ⚡ Fun fact: ... I love singing, Dancing and being Free...
+
+https://github.com/devicons/devicon.git
+
 
