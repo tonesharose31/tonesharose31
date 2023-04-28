@@ -5,8 +5,7 @@
 - 👯 I’m looking to collaborate on ...Team work in a team environment 
 - 🤔 I’m looking for help with ...
 - 💬 Ask me about ...Anything about Life 
-- 📫 How to reach me: ...virtually 
-- 😄 Pronouns: ...Her/She 
+- 📫 How to reach me: ...virtually  
 - ⚡ Fun fact: ... I love singing, Dancing and being Free...
 
 
