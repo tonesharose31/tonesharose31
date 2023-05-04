@@ -6,8 +6,4 @@
 - 🤔 I’m looking for help with ...Developing my Engineering Skills 
 - 💬 Ask me about ...Anything to do with Life 
 - 📫 Email me: ...tonesharose@pursuit.org 
-- ⚡ Fun fact: ... I love singing, Dancing and being Free...
-
-https://github.com/1Prototype1/HexBot.git
-
-
+- ⚡ Fun fact: ... I love singing, Dancing and being Free....
